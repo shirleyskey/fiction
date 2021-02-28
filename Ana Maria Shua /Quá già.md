@@ -1,0 +1,1 @@
+Từ trong một bọng cây, một người đàn ông gọi tôi. Cô ơi, cứu tôi với, hắn năn nỉ. Tôi bị phù thuỷ nhốt ở đây cả mấy thế kỷ rồi, chỉ mong chờ một trinh nữ đến cứu. Tôi không phải là một trinh nữ, đồ thô lỗ, tôi là đàn bà; tôi trả lời, cảm thấy như bị xúc phạm. (Một người đàn ông đã sống đến mấy thế kỷ thì quá già đối với tôi).

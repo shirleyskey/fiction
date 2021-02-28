@@ -1,0 +1,3 @@
+#### DIỄN CHẾT 
+
+Một người đàn ông nhảy ra khỏi ban công trước mắt một nhóm bạn. Một trong số đó với tay ra và nắm lấy một tay hắn. Với một nỗ lực to lớn, kẻ tự sát rướn người lên cao đủ để cắn lấy bàn tay của kẻ đang giữ hắn và cuối cùng trượt vào khoảng không. Đây không phải là một câu chuyện. Người đàn ông này, vốn là một diễn viên, có đủ can đảm để chiến đấu cho chính cái chết của mình, nhưng không đủ để tự sát mà không có khán giả.

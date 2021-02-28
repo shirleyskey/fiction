@@ -1,0 +1,3 @@
+#### ĐỪNG KỂ TRƯỚC
+
+Một nhà văn kể ra cái ý tưởng của một câu chuyện mà hắn sắp viết. Hắn kể nó ra tại một cái bàn trong quán cà-phê. Đó là một ý tưởng hay. Không khí càng lúc càng căng thẳng chung quanh những lời hắn thốt ra. Câu chuyện dày đặc đến độ khói thuốc lá không bay xuyên qua nó được — những sợi khói chỉ chạm vào cái viền bên ngoài của nó. Thế nhưng, sau đó, khi hắn cố gắng chuyển nó ra thành chữ, hắn mới thấy có những vết nứt bất ngờ mà qua đó những lời nói của hắn đã chảy lọt ra ngoài; có những chỗ bất trắc, một đám sương mù xâm nhập vào văn bản; và các đấng thần linh từ chối một vật hiến tế không còn thanh khiết, một vật hiến tế đã được thưởng thức trước bởi những kẻ khác.

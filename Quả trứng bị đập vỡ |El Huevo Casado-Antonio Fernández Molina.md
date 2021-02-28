@@ -1,0 +1,3 @@
+#### QUẢ TRỨNG BỊ ĐẬP VỠ
+
+Trong khốn khó, một quả trứng là một buổi ăn tối thanh đạm và một giấc ngủ yên bình: tôi cầm nó trên tay và đập vỡ nó để cho vào chảo. Thay vào chỗ của lòng trắng và lòng đỏ là một người đàn ông giống tôi như đúc. Hắn đang đập vỡ một quả trứng trên thành chảo và từ đó lại nhảy ra một người đàn ông khác, nhỏ hơn, cũng giống hệt tôi, với một quả trứng trong tay. Và cứ tiếp tục như thế. Vô tận.

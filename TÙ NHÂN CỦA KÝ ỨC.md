@@ -1,0 +1,3 @@
+#### TÙ NHÂN CỦA KÝ ỨC
+
+Sau gần hai chục năm sống ở nước ngoài, nàng về Việt Nam thăm quê. Đứng trước ngôi nhà mà thuở nhỏ nàng từng sống, nàng xúc động đến ứa nước mắt. Bao nhiêu kỷ niệm của thời thơ ấu hiện về. Nàng gõ cửa. Không ai lên tiếng. Nàng đẩy cửa bước vào. Khi nàng vừa bước vào trong, cánh cửa tự động đóng sầm lại. Nàng hốt hoảng nhận ra là phía trong không hề có chốt mở. Nàng không thể nào mở cửa ra được nữa. Nàng bị nhốt trong căn nhà cũ. Vĩnh viễn.

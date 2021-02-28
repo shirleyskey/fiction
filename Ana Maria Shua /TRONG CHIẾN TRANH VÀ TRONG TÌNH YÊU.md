@@ -1,0 +1,3 @@
+#### TRONG CHIẾN TRANH VÀ TRONG TÌNH YÊU
+
+Trong chiến tranh và trong tình yêu, điều gì cũng chấp nhận được. Mưu mẹo và dối trá chấp nhận được: nghệ thuật chiến tranh là nghệ thuật lừa dối, Tôn Tử đã nói vậy. Tấn công và tàn phá chấp nhận được, bởi kẻ nào không yêu chúng ta như chúng ta yêu thì trở thành kẻ thù. Tất cả đều chấp nhận được trừ bò lê, van nài, cầu xin tha thứ, tự nộp mạng, đầu hàng, khiếp sợ, tất cả mọi thứ đều chấp nhận được, bởi vì không gì có nghĩa lý trong chiến tranh và trong tình yêu, trừ giết chóc. Bởi vì mục đích tối hậu của chiến tranh không phải là cái chết, mà là sự đánh bại kẻ thù và mục đích tối hậu của tình yêu không phải để giết, mà để chiếm lấy lãnh thổ của họ. Vậy mà…

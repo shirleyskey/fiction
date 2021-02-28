@@ -1,0 +1,3 @@
+#### THƠ LÀ EM
+
+Hiện hữu của em và giọng nói của em xâm nhập mọi sự, không ngừng, tôi không lắng nghe em nhưng vẫn nghe em, cái âm thanh chói tai ấy biến thành âm nhạc trong cốt lõi của cuộc sống tôi, cái khối tiếng ồn chặt cứng ấy, trong đó trí óc tôi thỉnh thoảng tìm thấy vài ý nghĩa, trong đó tôi di chuyển với sự nặng nhọc, như một người thợ lặn bị đè dưới những lớp khí nén khiến thân thể của hắn ép chặt vào lòng biển sâu. Có lẽ đó là lý do tại sao, em yêu, tôi yêu thích em những khi em im lặng và những khi tưởng như em gần ra đi vĩnh viễn.
